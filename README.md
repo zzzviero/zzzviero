@@ -1,1 +1,1 @@
-![](https://cdn.phototourl.com/member/2026-10-17-e5a52bdd-4874-41c7-9834-dd8782b101ff.png)
+![](https://cdn.phototourl.com/member/2026-10-23-403539cc-0b21-4e36-aff7-8d95cd02aefe.png)
