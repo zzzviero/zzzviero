@@ -1,5 +1,5 @@
 <details>
-  <summary><b>me and</b></summary>
+  <summary><b>rizz shitchats</b></summary>
   
   <br>
   <img src="https://cdn.phototourl.com/member/2026-10-25-1460dc71-5c00-47e6-be25-198b571cff90.jpg" alt="screenshots" width="100%">
