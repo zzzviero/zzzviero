@@ -1,3 +1,3 @@
-![](https://cdn.phototourl.com/member/2026-10-24-90813ed5-86aa-4667-bc10-619882dda2dd.gif)
+![](https://cdn.phototourl.com/member/2026-10-25-bdd078c4-941f-4186-af14-9d84a3c9c6c3.jpg)
 
-<p align="center">me and my kyute patootie
+<p align="center">hi chiro I lobe yuo🦶🦶🦶🦶
