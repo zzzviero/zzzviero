@@ -1,1 +1,1 @@
-![](https://cdn.phototourl.com/member/2026-11-11-31569fa4-ad5a-410c-9000-48733b445c7e.jpg)
+`hi, so i often busy with homework or another business idk what is it so i always afk for a freaking long time on Ponytown so if u see me around it's alright to cuddle with meh yea yea yea it's optional but lowk encouraged ok bc i usually sit alone`
